@@ -1,0 +1,5 @@
+# frango a parme
+
+## Receita de Filé de Frango à Parmegiana
+
+Hoje eu quero ensinar para vocês uma receita clássica que todo mundo precisa aprender a fazer, pois é uma ótima opção de almoço ou jantar para aqueles dias que você quer caprichar e economizar ao mesmo tempo. Veja aqui como fazer **filé de frango à parmegiana** que é frito na frigideira e depois levado ao forno. Esse é aquele prato especial que você consegue preparar em 30 minutinhos ou mesnos e na hora de servir, basta fazer uma saladinha, um puré de batata e um arroz temperado bem soltinho ou também pode ser servido com, arroz e batata frita. Fica uma delicia! A receita é muito simples e não tem como errar, é um jeitinho especial de dar uma diferenciada no dia a dia e não ficar só no frango frito ou cozido. A receita de **filé de frango à parmegiana** simples pode ser feita também usando carne ao envéz de frango, o passo a passo é o mesmo. Façam aí na casa de vocês e depois voltem aqui para me contar o resultado. Quem quiser também pode fazer um molho verde caseiro para acompanhar, aqui no nosso blog tem várias receitinhas. **Filé de Frango à Parmegiana.**
